@@ -39,6 +39,6 @@
 - Guide students through real-world mobile projects
 
 📫 Contact me:
-- Facebook: https://facebook.com/thiv.slot.5
-- GitHub: https://github.com/Thivcoding
-- Telegram: https://t.me/hokvanthiv
+- Facebook: [https://facebook.com/thiv.slot.5](https://web.facebook.com/e9mn0f0uyq/)
+- GitHub: https://github.com/seangleangsim006-cmd
+- Telegram: https://t.me/seangleangsim
